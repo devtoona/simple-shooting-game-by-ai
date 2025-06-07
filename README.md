@@ -27,3 +27,8 @@ https://soundeffect-lab.info/sound/search.php?s=%E3%83%93%E3%83%BC%E3%83%A0
 
 爆発:<br>
 https://soundeffect-lab.info/sound/search.php?s=%E7%88%86%E7%99%BA
+
+
+## デモ
+xで呟いてます<br>
+https://x.com/toona96x/status/1930987098099867765
